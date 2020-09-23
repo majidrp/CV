@@ -1,2 +1,2 @@
 # CV
-Majid Rasouli's CV
+Please click on Rasouli_Resume.pdf
